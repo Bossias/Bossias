@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Bossias
+- 👀 I’m interested in: Fear & Hunger (game)
+- 🌱 I’m currently learning: String Codes
+- 💞️ I’m looking to collaborate on: Fun Activities
+- 📫 How to reach: by my email: 000110915575xsp@al.educacao.sp.gov.br
+- 😄 Pronouns: He-Him (Ofc lol)
+- ⚡ Fun fact: I am mentally derenged sometimes
